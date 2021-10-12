@@ -1,5 +1,6 @@
 ---
-title: "Welcome to my blog"
+title: "THIS is my blog cino and i welcome all for it"
 ---
 
-I'm glad you are here. I plan to talk about ...
+where there is a will there is a way ,
+things are tough but not impossible...
